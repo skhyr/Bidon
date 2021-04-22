@@ -1,1 +1,1 @@
-## Wtyczka poprawia osoby nieokazujące należytego szacunku członkom Narodu Wybranego
+## Joe Biden -> Joe Bidon
